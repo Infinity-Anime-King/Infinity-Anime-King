@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Infinity-Anime-King
+- 👀 I’m interested in Hacking
+- 🌱 I’m currently learning Python full stack
+- 📫 How to reach me: Discord (infinity_anime_king)
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am Anime King. 
